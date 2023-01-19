@@ -1,0 +1,2 @@
+# killjeffbezoz.com
+sucki sucki
